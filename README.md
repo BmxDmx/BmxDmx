@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BmxDmx
-- 👀 I’m interested in anything to do with coputers
+- 👀 I’m interested in anything to do with computers
 - 🌱 I’m currently learning AI
 - 📫 How to reach me Discord : BmxDmx#0001
 
